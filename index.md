@@ -1,1 +1,1 @@
-## Conor is a tardo
+## Conor go kill yourself
