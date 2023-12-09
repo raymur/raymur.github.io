@@ -1,2 +1,2 @@
 ## Markus go kill yourself
-![alt text](fat_squirrel.png "Fatty")
+![img](fat_squirrel.jpg "Fatty")
